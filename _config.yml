@@ -1,3 +1,5 @@
 theme: jekyll-theme-cayman
 title: NEWS FROM CASIRAGHIA!
 description: Qui troverai le ultime novità del Liceo scritte da noi studenti!
+github:
+  is_project_page: false
