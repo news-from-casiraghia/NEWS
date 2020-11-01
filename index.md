@@ -1,5 +1,5 @@
 ## CIAO CASIRAGHIANI!
-Benvenuti nella nuova App del Liceo! Per rimanere aggiornati al **100%** sulla scuola seguite anche la pagina Instagram \_casiraghia_\
+Benvenuti nella nuova App del Liceo! Per rimanere aggiornati al **100%** sulla scuola seguite anche la pagina Instagram **\_casiraghia_**
 
 ```
 LA LISTA AmonCas:
