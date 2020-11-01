@@ -1,11 +1,7 @@
-## Nuovo aggiornamento!
-È disponibile un nuovo aggiornamento dell'app! Corri a farlo!
+## Ciao Casiraghiani!
+Benvenuti nella nuova App del Liceo! Questa è la schermata **News** e qui verranno pubblicate tutte le novità e le comunicazioni inerenti la scuola!
 
 ```
-1. Nuova grafica
-2. Nuova schermata sondaggi
-3. Nuovo logo
+LA LISTA AMONCAS VINCE LE ELEZIONI!
+Irene Amato, Mattia Celino, Alessandro Deligios e Giaime schiano sono i nuovi rappresentanti di istituto.
 ```
-
-## Notizia flash!
-il casiraghi dice NO alla preside.
