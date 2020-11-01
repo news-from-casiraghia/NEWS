@@ -1,7 +1,10 @@
-## Ciao Casiraghiani!
-Benvenuti nella nuova App del Liceo! Questa è la schermata **News** e qui verranno pubblicate tutte le novità e le comunicazioni inerenti la scuola!
+## CIAO CASIRAGHIANI!
+Benvenuti nella nuova App del Liceo! Per rimanere aggiornati al **100%** sulla scuola seguite anche la pagina Instagram \_casiraghia_\
 
 ```
-LA LISTA AMONCAS VINCE LE ELEZIONI!
-Irene Amato, Mattia Celino, Alessandro Deligios e Giaime schiano sono i nuovi rappresentanti di istituto.
+LA LISTA AmonCas:
+Irene Amato 5°CS
+Mattia Celino 5°CS
+Alessandro Deligios 5°CS
+Giaime Schiano 5°ES
 ```
