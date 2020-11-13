@@ -1,3 +1,6 @@
+### Torneo E-School League
+Casiraghiani, siete dei fenomeni ai videogiochi, o semplicemente vi divertite, e volete dimostrarlo? Il torneo E-School League è quello che fa per voi! Iscrivetevi tramite la schermata *Attività* dell'App! Per maggiori informazioni, invece, potete [guardare qua.](https://drive.google.com/file/d/1Lc4Sf-rjl_MNuS6MXF82z-ISsTuc_QRF/view?usp=sharing)
+
 ### Nuova App del Liceo
 Se ancora non dovessi avere *Casiraghia* installata, puoi scaricarla [cliccando qua](https://youtu.be/dQw4w9WgXcQ)!
 
