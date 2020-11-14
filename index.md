@@ -1,5 +1,5 @@
 ## Proposta lettera alla regione Lombardia
-* Di recente abbiamo avuto un incontro con i rappresentati di alcuni istituti di Milano, ed è emersa un'iniziativa interessante... Ci teniamo quindi a sapere cosa ne pensate voi: [cliccate qui](https://docs.google.com/forms/d/e/1FAIpQLSdR40b7QyLSyQMNPCEQVMl5PbICN81B9cgBgXEXt05IRfMJ9g/viewform?usp=sf_link) per dare un'occhiata 👀
+* Di recente abbiamo avuto un incontro con i rappresentati di alcuni istituti di Milano, ed è emersa un'iniziativa interessante... Ci teniamo quindi a sapere cosa ne pensate voi: in molti ci avete risposto nel [sondaggio che avevamo pubblicato](https://docs.google.com/forms/d/e/1FAIpQLSdR40b7QyLSyQMNPCEQVMl5PbICN81B9cgBgXEXt05IRfMJ9g/viewform?usp=sf_link) e vi ringraziamo caldamente per questo!!
 
 ## Torneo Nazionale di gaming delle scuole
 * Casiraghiani, siete dei fenomeni ai videogiochi, o semplicemente vi divertite, e volete dimostrarlo? Il torneo E-School League è quello che fa per voi! Iscrivetevi tramite la schermata **Attività** dell'App! Per maggiori informazioni, invece, potete [guardare qua.](https://drive.google.com/file/d/1Lc4Sf-rjl_MNuS6MXF82z-ISsTuc_QRF/view?usp=sharing)
