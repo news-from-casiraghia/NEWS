@@ -1,5 +1,5 @@
 ## Proposta lettera alla regione Lombardia
-* Di recente abbiamo avuto un incontro con i rappresentati di alcuni istituti di Milano, ed è emersa un'iniziativa interessante... Ci teniamo quindi a sapere cosa ne pensate voi: in molti ci avete risposto nel [sondaggio che avevamo pubblicato](https://docs.google.com/forms/d/e/1FAIpQLSdR40b7QyLSyQMNPCEQVMl5PbICN81B9cgBgXEXt05IRfMJ9g/viewform?usp=sf_link) e vi ringraziamo caldamente per questo!!
+* Dato l'esito ottenuto dal sondaggio che vi avevamo proposto, abbiamo sottoscritto a nome del Casriaghi la lettera proposta da varie scuole di Milano riguardo la messa in sicurezza della struttura scolastica, esortando la Regione Lombardia a permettere quanto prima un sicuro rientro a scuola. Grazie a tutti quelli che hanno votato nel sondaggio! *Per maggiori informazioni potete contattarci nella sezione Feedback*
 
 ## Torneo Nazionale di gaming delle scuole
 * Casiraghiani, siete dei fenomeni ai videogiochi, o semplicemente vi divertite, e volete dimostrarlo? Il torneo E-School League è quello che fa per voi! Iscrivetevi tramite la schermata **Attività** dell'App! Per maggiori informazioni, invece, potete [guardare qua.](https://drive.google.com/file/d/1Lc4Sf-rjl_MNuS6MXF82z-ISsTuc_QRF/view?usp=sharing)
