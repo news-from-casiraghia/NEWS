@@ -1,3 +1,8 @@
+## Aggiornamento consiglo d'istituto
+* Casiraghiani, il preside ha dato a noi studenti la possibilità di fare delle **asemblee d'istituto**! Stiamo pensando all'organizzazione di un'assemblea con i rappresentanti di classe. I temi da trattare saranno relativi a **orario** e **didattica a distanza**, ma anche per qualche programma interessante...
+
+*Spoiler: il cinquantesimo anniversario della nostra scuola porterà della stoffa...*
+
 ## Proposta lettera alla regione Lombardia
 * Dato l'esito ottenuto dal sondaggio che vi avevamo proposto, abbiamo sottoscritto a nome del Casriaghi la lettera proposta da varie scuole di Milano riguardo la messa in sicurezza della struttura scolastica, esortando la Regione Lombardia a permettere quanto prima un sicuro rientro a scuola. Grazie a tutti quelli che hanno votato nel sondaggio! *Per maggiori informazioni potete contattarci nella sezione Feedback*
 
