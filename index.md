@@ -1,5 +1,5 @@
-## Aggiornamento consiglo d'istituto
-* Casiraghiani, il preside ha dato a noi studenti la possibilità di fare delle **asemblee d'istituto**! Stiamo pensando all'organizzazione di un'assemblea con i rappresentanti di classe. I temi da trattare saranno relativi a **orario** e **didattica a distanza**, ma anche per qualche programma interessante...
+## Aggiornamento consglio d'istituto
+* Casiraghiani, il preside ha dato a noi studenti la possibilità di fare delle **assemblee d'istituto**! Stiamo pensando all'organizzazione di un'assemblea con i rappresentanti di classe. I temi da trattare saranno relativi a **orario** e **didattica a distanza**, ma anche per qualche programma interessante...
 
 *Spoiler: il cinquantesimo anniversario della nostra scuola porterà della stoffa...*
 
