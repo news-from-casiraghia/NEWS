@@ -1,10 +1,8 @@
+## Assemblea di Istituto 17 Dicembre 2020
+* Casiraghiani, si è tenuta oggi la prima assemblea di istituto di questo particolare anno. Chiedete ai vostri rappresentanti di classe di riassumervi gli argomenti trattati! In particolare, noi ci soffermiamo su un tema, quello del rientro a scuola: per agevolare la gestione dei trasporti una volta rientrati, vi chiediamo di compilare [questo sondaggio](https://scuole.tplinrete.it/) che riguarda "con che mezzo andate a scuola". Ricordate di compilaro **con la mail personale** e non istituzionale e *di rispondere alla mail di verifica che vi verrà mandata* per confermare la risposta al sondaggio, altrimenti non verrà contata! Servirà alla città metropolitana per scaglionare i mezzi pubblici e renderli più efficaci e sicuri quando rientreremo. Ave atque vale!
+
 ## Torneo Nazionale di gaming delle scuole - Apertura Iscrizioni
 * Casiraghiani, siete dei fenomeni ai videogiochi, o semplicemente vi divertite, e volete dimostrarlo? Il torneo E-School League è quello che fa per voi! Iscrivetevi *ufficialmente* tramite la schermata **Attività** dell'App! Per maggiori informazioni, invece, potete [guardare qua.](https://assembleiamo.it/e-school-league/)
-
-## Aggiornamento consiglio d'istituto
-* Casiraghiani, il preside ha dato a noi studenti la possibilità di fare delle **assemblee d'istituto**! Stiamo pensando all'organizzazione di un'assemblea con i rappresentanti di classe. I temi da trattare saranno relativi a **orario** e **didattica a distanza**, ma anche per qualche programma interessante...
-
-*Spoiler: il cinquantesimo anniversario della nostra scuola porterà della stoffa...*
 
 ## Proposta lettera alla regione Lombardia
 * Dato l'esito ottenuto dal sondaggio che vi avevamo proposto, abbiamo sottoscritto a nome del Casriaghi la lettera proposta da varie scuole di Milano riguardo la messa in sicurezza della struttura scolastica, esortando la Regione Lombardia a permettere quanto prima un sicuro rientro a scuola. Grazie a tutti quelli che hanno votato nel sondaggio! *Per maggiori informazioni potete contattarci nella sezione Feedback*
