@@ -6,8 +6,7 @@
     - Il **25% degli studenti** farà lezione da casa in **DAD**
     - Lo 0% degli studenti e dei professori è d’accordo con questo caos, ma purtroppo sono ordini dall’alto
     >si poteva benissimo fare 50% in presenza e 50% in DAD a rotazione, senza complicare le cose
-    
-    evidenziano alcuni professori, spiegando anche che vi sarebbero enormi problemi nell'elaborazione di un orario con tali divisioni e che probabilmente alcune classi starebbero a scuola fino alle 16:15
+evidenziano alcuni professori, spiegando anche che vi sarebbero enormi problemi nell'elaborazione di un orario con tali divisioni e che probabilmente alcune classi starebbero a scuola fino alle 16:15
 
   - Per quanto riguarda *l’alternanza* (classi del triennio), il preside ci ha detto che stanno lavorando per permettere a tutti gli studenti di completare le ore di alternanza che mancano; non c'è da preoccuparsi dunque (specialmente voi, studenti di quinta, che temete di non venire ammessi all'esame: quessto non succederà). Forse saranno attivati anche mezzi per permettere agli studenti di contare come ore valide alcune attività (esempio: openday o corsi vari) che ciascuno studente fa autonomamente. Forse.
 
