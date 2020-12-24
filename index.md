@@ -1,3 +1,17 @@
+## Ritorno a Gennaio? Resoconto Consiglio di Istituto
+* Ciao Casiraghiani! Si è tenuto Lunedì il Consiglio di Istituto e abbiamo da riferirvi notizie riguardanti il ritorno a gennaio, l’alternanza scuola-lavoro e la settimana dei recuperi.
+  - Per quanto riguarda il *ritorno a Gennaio*, è questa la proposta fatta dalla Provincia, ma il governo *potrebbe cambiare idea in qualsiasi momento*:
+    - Il **50% degli studenti** farà **lezione in presenza** ed entrerà alle **8:20**
+    - Il **25% degli studenti** farà lezione in presenza ma entrerà dopo le **9:30**
+    - Il **25% degli studenti** farà lezione da casa in **DAD**
+    - Lo 0% degli studenti e dei professori è d’accordo con questo caos, ma purtroppo sono ordini dall’alto.
+
+  - Per quanto riguarda *l’alternanza* (classi del triennio), il preside ci ha detto che stanno lavorando per permettere a tutti gli studenti di completare le ore di alternanza che mancano; non c'è da preoccuparsi dunque (specialmente voi, studenti di quinta, che temete di non venire ammessi all'esame: quessto non succederà). Forse saranno attivati anche mezzi per permettere agli studenti di contare come ore valide alcune attività (esempio: openday o corsi vari) che ciascuno studente fa autonomamente. Forse.
+
+  - *La settimana dei recuperi*, invece, **quest’anno NON si farà**; verranno forse inserite solamente alcune attività di *recupero in itinere*, ma probabilmente decideranno i singoli professori.
+
+  - Grazie, questo è tutto; Ave atque Vale.
+
 ## Assemblea di Istituto 17 Dicembre 2020
 * Casiraghiani, si è tenuta oggi la prima assemblea di istituto di questo particolare anno. Chiedete ai vostri rappresentanti di classe di riassumervi gli argomenti trattati! In particolare, noi ci soffermiamo su un tema, quello del rientro a scuola: per agevolare la gestione dei trasporti una volta rientrati, vi chiediamo di compilare [questo sondaggio](https://scuole.tplinrete.it/) che riguarda "con che mezzo andate a scuola". Ricordate di compilaro **con la mail personale** e non istituzionale e *di rispondere alla mail di verifica che vi verrà mandata* per confermare la risposta al sondaggio, altrimenti non verrà contata! Servirà alla città metropolitana per scaglionare i mezzi pubblici e renderli più efficaci e sicuri quando rientreremo. Ave atque vale!
 
