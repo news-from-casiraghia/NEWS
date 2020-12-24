@@ -4,7 +4,7 @@
     - Il **50% degli studenti** farà **lezione in presenza** ed entrerà alle **8:20**
     - Il **25% degli studenti** farà lezione in presenza ma entrerà dopo le **9:30**
     - Il **25% degli studenti** farà lezione da casa in **DAD**
-    - Lo 0% degli studenti e dei professori è d’accordo con questo caos, ma purtroppo sono ordini dall’alto.
+    - Lo 0% degli studenti e dei professori è d’accordo con questo caos, ma purtroppo sono ordini dall’alto ("si poteva benissimo fare 50% presenza-50% DAD a rotazione, senza complicare le cose" evidenziano alcuni professori)
 
   - Per quanto riguarda *l’alternanza* (classi del triennio), il preside ci ha detto che stanno lavorando per permettere a tutti gli studenti di completare le ore di alternanza che mancano; non c'è da preoccuparsi dunque (specialmente voi, studenti di quinta, che temete di non venire ammessi all'esame: quessto non succederà). Forse saranno attivati anche mezzi per permettere agli studenti di contare come ore valide alcune attività (esempio: openday o corsi vari) che ciascuno studente fa autonomamente. Forse.
 
