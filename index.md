@@ -1,3 +1,6 @@
+## I bigliettini di San Valentino <3
+Casiraghiani innamorati, è arrivato (QUASI) San Valentino anche quest'anno. Se volete mandare un messaggio segreto alla vostra anima gemella, potete, come ogni anno, compilare [questo modulo](https://docs.google.com/forms/d/e/1FAIpQLSf2v5hYy1JCIulw2TaxzPE7TmiU4x7SZLWL6zCk-2ANnIFILw/viewform?vc=0&c=0&w=1&flr=0): le risposte finiranno sulla prossima edizione del giornalino scolastico (fine Febbraio)!
+
 ## News rientro in presenza
 Casiraghiani, abbiamo appena finito di parlare col preside, in merito alla questione del rientro. Gli argomenti trattati sono stati:
 - **percentuali delle classi in presenza**: questa settimana, i primi due giorni (martedì e mercoledì) andranno a scuola solo il 40% delle classi, da giovedì, quando verrà inserita l’entrata alle 10:10, la percentuale delle classi in presenza salirà *al 50%*. Per settimana prossima rimangono delle incognite, ma *entro sabato uscirà una circolare in merito*. Il preside è orientato a mantenere il 50%, ma si potrebbe salire al 75%, facendo delle turnazioni per il restante 25%. Indicativamente, le classi che seguiranno maggiormente in presenza saranno *le prime e le quinte*.
